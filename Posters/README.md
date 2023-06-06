@@ -1,0 +1,1 @@
+These are the posters I made using figma and canva. I also clicked the pictures of the products as well as edited them on on,lightroom and photoshop.
